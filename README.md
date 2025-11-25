@@ -1,4 +1,4 @@
-📧edmariooliveira2002@hotmail.com
+📧galmeidadonascimento274@gmail.com
 
 Discord: Mixirica
 
